@@ -1,3 +1,3 @@
 {
-  "لاینسس هدیه": "Lic_apk.irsmsbomber__bombhubet.k/code:\"4401-66\";¡"
+  "لاینسس هدیه": "لاینسس وجود ندارد خدش خبر ندارد \nsnsnzmzmzmzmsmsmzmzmxmxnxnxnxnxnxnxnxnxnxnxnnxxm"
 }
