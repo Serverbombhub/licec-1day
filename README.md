@@ -1,3 +1,3 @@
 {
-  "لاینسس هدیه": "off jsksmdmdmdmsmdmdmdmdmdmdmdmdmdmdmdmdmdmdmdmdmkdmdk29292929292929292929922929299292929292929292o29393993393o92o3939\n404\n404\n404"
+  "لاینسس هدیه": "ALi135_apkbombhub_ir///code:\u0027\"667-0091-666669\";"
 }
