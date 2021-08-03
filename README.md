@@ -1,3 +1,3 @@
 {
-  "لاینسس هدیه": "No lins\n404\n404\n404\n404\n404\n404\nNO FUND\n404\n404\n!."
+  "لاینسس هدیه": "list_Vip_apkbombhub/code:\"667-89000\""
 }
