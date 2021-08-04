@@ -1,3 +1,3 @@
 {
-  "لاینسس هدیه": "list_Vip_apkbombhub/code:\"667-89000\""
+  "لاینسس هدیه": "panel VIP bomber//h《code:\"889-9900-6\";"
 }
